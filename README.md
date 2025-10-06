@@ -1,1 +1,1 @@
-https://crazy-kitten.github.io/rsschool-cv/cv
+ **[CV: https://crazy-kitten.github.io/rsschool-cv/cv ](https://crazy-kitten.github.io/rsschool-cv/cv)**
